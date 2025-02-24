@@ -63,6 +63,7 @@ https://twitter.com/NakoTurk/status/1493533696015708161?s=20&t=BeMF_JgiXzsYdjmzi
 https://twitter.com/NakoTurk/status/1477738884155031553?s=20
 https://x.com/NakoTurk/status/1836414334190104976
 https://x.com/NakoTurk/status/1838350516469825650
+https://x.com/NakoTurk/status/1881834706712604876
 
 English:
 https://x.com/NakoTurk/status/1838517166473097428
@@ -71,6 +72,7 @@ https://x.com/NakoTurk/status/1848638746373107790
 https://x.com/NakoTurk/status/1848866250338013344
 https://x.com/NakoTurk/status/1849466470603932050
 https://x.com/NakoTurk/status/1851558371935088878
+https://x.com/NakoTurk/status/1848336892007248289
 
 Turkish Translate:
 https://nakoturk.medium.com/mammoth-miniden-ilk-sonu%C3%A7lar-27mb-sn-izinsiz-veri-%C3%A7%C4%B1k%C4%B1%C5%9F%C4%B1-36f10458325a
